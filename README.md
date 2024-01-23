@@ -16,6 +16,7 @@ these very points. Even though the biological, hormonal and medical influences o
 interdependent, an attempt is being made to separate them for a better overview. It should also be
 mentioned that these natural influences can be affected by hormone supplements or other medical
 changes to the body.
+
 The influencing factors mentioned are strongly interdependent, making it almost impossible to
 separate them. Hormones have a strong influence on the body, since they can affect the way we
 react to various influences, such as our environment or stress. They also have an impact on the
@@ -26,6 +27,7 @@ that. Exemplary, the influence of biological factors such as the environment, de
 a change in lifestyle or nutrients can cause genomic and epigenetic changes. These changes
 combined with their physiological effects are different in men and women. The reason for this is
 that DNA repair and epigenetic mechanisms are altered by sex hormones.
+
 One field in which the differentiation between the sexes is a necessity is medicine. The cellular
 distinctions have an influence on the tolerance and effect of medication as well as on the symptoms
 of diseases. Since most of todays medical knowledge is based on aggregate data from male cells,
@@ -39,6 +41,7 @@ heart attack, such as shortness of breath, nausea and vomiting as well as back o
 From a biological or medical point of view, it is simply impossible to abolish the sexes. Simply
 because even if you do not feel comfortable with your own sex or gender of the remaining influence
 of hormones and effectiveness of medication.
+
 In regards to gender this differs completely. Since the cultural gender cannot take any biological,
 hormonal or medical influences on the body, there is no valid reason that would speak against the
 abolition of gender. Nevertheless, the idea of abolishing genders seems to receive no attention.
@@ -60,6 +63,7 @@ for women is on the one hand a marketing strategy, but on the other hand another
 stereotyping women in general, it is also a reason why many think women love the color pink. While
 the problems listed represent barriers to be overcome, a world without gender does not seem
 impossible.
+
 But why should gender be eliminated in the first place? One reason for this is to avoid
 stereotypes. This allows for a free development of personality, which is not limited by gender-
 specific constraints. A girl is not placed in the section of pink sweaters and purple dresses when
@@ -81,6 +85,7 @@ Germany, there are clear rules on naming. For instance, the name must indicate p
 the child is female or male. It is not possible to give a girls name to a boy. Without gender, this
 would not be a problem, because if there are no genders, no name for a particular gender can be
 forbidden.
+
 In conclusion one can say that the distinction between sex and gender is necessary. While sex is
 determined by genetics, people choose their own gender. Sex should not be a pretext for a
 gender system, but cannot be eliminated, because a persons biological differences must be known
