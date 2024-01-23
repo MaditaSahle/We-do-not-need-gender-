@@ -1,5 +1,29 @@
 # We do not need gender!
 
+One topic that has gained attention in the traditional media, but above all on various social media platforms, is
+the debate about the usage of gender and what it constitutes of. Even though the topic of gender equality
+and feminism has been gaining attention for decades, the topic of gender has been boiling up again and again
+recently. But some very important questions are often consciously or unconsciously omitted: “Is gender
+necessary anymore?” “Do we need gender in our society?” “Is life with gender easier or more difficult to cope
+with?”. There are clear differences in how gender is valued and applied in real life and on social media. While in
+real life the variety of genders is limited to a binary system (man and woman) and is sometimes supplemented
+by a third gender, online on social media you can find the most diverse forms of gender. Take a restroom, for
+example: here you have to decide whether to go to the restroom for women or for men. For people who cannot
+or do not want to decide in this case, there is, in the best case, the option of going to a third restroom (a
+restroom for people with a different identification). Usually though there is not much variation or choice in
+these situations. In contrast to social media. Taking Facebook as an example: if you register here, you get 60
+different genders to choose from. The list ranges from agender over non-binary to two-spirit. But regardless
+of whether its the expansion from two to three restrooms or the choice of 60 genders on Facebook: people
+do not seem to be happy with it! Nevertheless, complaints are always brought up about that not enough is
+being done or people do not feel integrated. But why do these people feel not integrated? Do they want to
+be something special, point out a grievance or do these people, who are against thinking in pigeonholes, not
+see themselves represented by all this and cannot feel assigned to the genders themselves because they do
+not correspond to this pigeonhole? But if we are not satisfied with the genders anyway, if they no longer have
+any meaning in society and the economy due to gender equality, if we cannot assign ourselves to them
+anymore because we do not want to be pigeonholed, then why do we need gender at all?
+
+
+
 To answer this question, we should start by making a distinction between sex and gender, because
 even if gender is not a necessity, the categorization of people by their sex brings various benefits.
 The main difference between sex and gender is how to know which sex or gender you are. If you
